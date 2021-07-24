@@ -1,0 +1,4 @@
+- 👋 Eae eu sou UltratronTHG
+- 👀 Sou jogador de lol infelizmente ...
+- 🌱 Eu estudo,pq nem só de lol vive o homem
+- 📫 como me encontrar:impossivel
